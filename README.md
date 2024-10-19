@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Elted6501
+- 👀 I’m interested in web development, I'm triyin to be a sysadmin
+- 🌱 I’m currently learning multiplatform software development
+- 📫 How to reach me (here)
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: who knew I had come this far
